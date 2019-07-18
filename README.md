@@ -1,0 +1,2 @@
+# personalia
+personalia DIKTI
